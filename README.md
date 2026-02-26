@@ -52,7 +52,7 @@ I’m particularly interested in:
 
 📧 khushalrustagi@gmail.com  
 💼 LinkedIn: (https://www.linkedin.com/in/khushal-rastogi/)  
-🧑‍💻 GitHub: https://github.com/khushalRastogiNT  
+🧑‍💻 GitHub: https://github.com/khushalRastogi
 
 ---
 
